@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **shripadtirlotkar15@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1lGKYn3cFd3WCO-_z30PwiEwIUdscU4jO/view](https://drive.google.com/file/d/1lGKYn3cFd3WCO-_z30PwiEwIUdscU4jO/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1uubre3pUCga0oJ25vn-tTnfKFGKhEuEd/view](https://drive.google.com/file/d/1uubre3pUCga0oJ25vn-tTnfKFGKhEuEd/view)
 
 - ⚡ Fun fact **Tech Enthusiast "I once tried to explain recursion to my dog. Safe to say, he’s still fetching… 🐶"**
 
