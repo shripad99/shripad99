@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **shripadtirlotkar15@gmail.com**
 
-- 💼 Here is my Portfolio **[shripadtirlotkar15@gmail.com](https://shripadtirlotkar.netlify.app/)**
+- 💼 Here is my Portfolio **[https://shripadtirlotkar.netlify.app/](https://shripadtirlotkar.netlify.app/)**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1uubre3pUCga0oJ25vn-tTnfKFGKhEuEd/view](https://drive.google.com/file/d/1uubre3pUCga0oJ25vn-tTnfKFGKhEuEd/view)
 
